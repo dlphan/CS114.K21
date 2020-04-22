@@ -45,8 +45,7 @@ Give gifts and support changing new electric bulb to poor families in Long An.
 
 ## Honors/ Achievemen
 
-__SEEDS Scholarship - Pacific Links Foundation (PALS).
-( 05/2018 )__  
+SEEDS Scholarship - Pacific Links Foundation (PALS). 
 
 ------
 
