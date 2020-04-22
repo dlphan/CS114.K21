@@ -39,7 +39,7 @@ Use ReactJS, NestJS, MongoDB, Apollo on the company's projects.
 __Volunteer program of SEEDS.
 ( 05/2018 )__  
 *Position: Volunteer*  
-Give gifts and support changing new electric bulb to poor families in Long An.
+Give gifts and help poor family with changing bulb in Long An.
 
 ------
 
